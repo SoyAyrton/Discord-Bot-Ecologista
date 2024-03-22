@@ -1,1 +1,0 @@
-# Discored-Bot-Ecologista
